@@ -4,6 +4,52 @@
 <img  align="right"  alt="Coding" width="400" src="https://raw.githubusercontent.com/Potential17/Potential17/master/user%20(2).gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ashishkumardubey123&label=Profile%20views&color=0e75b6&style=flat" alt="ashishkumardubey123" /> </p>
 
+ # 🚀 DEVELOPER MINDSET
+
+## ⚡ PURA NAHI SEEKHNA HAI  
+### BAS JO BANA HAI USME JO LAGNA HAI USE DHONDH KE BANA DO  
+### YEHI DEVELOPER KA KAAM HAI.
+
+---
+
+## 📚 COURSE ME SAB NAHI SEEKHENGE  
+### LEKIN COURSE KE BAAD  
+# HUM SAB KUCHH BANA PAYENGE  
+### JO PEHLE NAHI BANA PA RAHE THE.
+
+---
+
+# 🔥 JO KAR RAHE HO VO ESE KARO
+
+## BHOOKH LAGE  
+## PYAS LAGE  
+## SAB KUCHH HO  
+
+# LEKIN KARO TO ESE KI  
+# JESE ISKE BINA JEE NAHI SAKTE  
+# JESE SANS NAHI LE PAOGE.
+
+---
+
+# 💻 DEVELOPER TAB BANTE HAIN
+
+## JAB LAGTA HAI  
+# "YE TO MUJHSE NAHI BAN PAYEGA"
+
+### LEKIN FIR BHI  
+# JUGAAD LAGA KE USE BANA LO.
+
+---
+
+# ⚔️ GROWTH TAB HOTI HAI
+
+## JAB TAK KHUD FASOGE NAHI  
+## TAB TAK SEEKHOGE NAHI
+
+# AUR JAB TAK  
+# KHUD FAS KE KHUD NA NIKALOGE  
+# TAB TAK DEVELOPER NAHI BANOGE.
+ 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=ashishkumardubey123" alt="ashishkumardubey123" /></a> </p>
 
 <p align="left"> <a href="https://twitter.com/https://twitter.com/ashishd26473289" target="blank"><img src="https://img.shields.io/twitter/follow/https://twitter.com/ashishd26473289?logo=twitter&style=for-the-badge" alt="https://twitter.com/ashishd26473289" /></a> </p>
